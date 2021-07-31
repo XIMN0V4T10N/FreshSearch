@@ -1,1 +1,1 @@
-# FreshSearch |A NEW WAY FOR WEB NAVIGATION!|
+# FreshSearch PLUGINS!
